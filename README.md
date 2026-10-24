@@ -219,4 +219,4 @@ Hades II is available as a full free version, including all features and updates
 Embark on your adventure today! Download Hades II free and explore the depths of the underworld like never before.
 
 ---
-**Last updated:** 2026-10-24 07:43:39 UTC
+**Last updated:** 2026-10-24 12:20:04 UTC
